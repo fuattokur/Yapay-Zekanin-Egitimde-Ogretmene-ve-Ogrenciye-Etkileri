@@ -1,0 +1,1 @@
+# Yapay-Zekan-n-E-itimde-retmene-ve-renciye-Etkileri
