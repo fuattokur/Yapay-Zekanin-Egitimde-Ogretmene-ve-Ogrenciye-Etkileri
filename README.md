@@ -1,1 +1,1 @@
-# Yapay-Zekan-n-E-itimde-retmene-ve-renciye-Etkileri
+# Yapay-Zekanin-Egitimde-Ogretmene-ve-Orenciye-Etkileri
